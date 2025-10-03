@@ -1,1 +1,2 @@
-# the-support-ate-it-all
+# The Support Ate it All
+Le protagoniste, un joueur dévoué du RPG « Dragon Slayer Academy », a élevé un nombre impressionnant de 1000 héros au rang S en tant que personnage de soutien le plus fort du jeu. Mais un jour, une mystérieuse fenêtre de quête apparaît devant lui, lui offrant une quête cachée, la chance d’élever un héros au-delà du rang S, un rang EX. Au moment où il accepte, il se retrouve réincarné dans le monde du jeu « Dragon Slayer Academy »
